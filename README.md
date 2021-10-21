@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @crin706
+- 👀 I’m interested in java
